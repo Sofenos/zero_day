@@ -1,1 +1,1 @@
-Yarbi tskot 
+amin 
